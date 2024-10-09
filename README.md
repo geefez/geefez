@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... fun stuff
 - 🌱 I’m currently learning ... javascript
 - 💞️ I’m looking to collaborate on ... nothing
-- 📫 How to reach me ... (Hiding for security purposes after I'm done archiving myself)
+- 📫 How to reach me ... adamtheyellowduck@gmail.com
 - 😄 Pronouns: ... 
 - ⚡ Fun fact: ... i like having multiple email addresses
 
